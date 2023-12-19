@@ -1,0 +1,178 @@
+# Duppla Values - valores
+
+Team: HR
+Tags: Culture
+owner: Felipe Fierro
+Status: Not started
+
+# Obsesionados con la verdad
+
+1. **Radicalmente Transparentes** 
+
+Compartimos abiertamente pensamientos, intenciones y acciones. Documentamos todo de forma abierta y construimos sobre lo que ya hemos logrado.
+
+![Untitled](Duppla%20Values%20-%20valores%2066056322e6e54e88931c84380a284d00/Untitled.png)
+
+1. **Nuestra comunicación es abierta y honesta** 
+
+Compartimos información relevante, especialmente cuando es incómodo. Aceptamos nuestros errores abiertamente y compartimos lo aprendido.
+
+1. **Aplaudimos el Conflicto Constructivo** 
+
+Cuestionamos supuestos y tenemos conversaciones difíciles en busca de mejores resultados
+
+![Untitled](Duppla%20Values%20-%20valores%2066056322e6e54e88931c84380a284d00/Untitled%201.png)
+
+1. **Mejor idea gana** 
+
+Nadie es dueño de la verdad, escuchamos y valoramos todas las propuestas para encontrar la mejor solución. Somos humildes sin importar antigüedad o posición.  
+
+1. **Data Driven**  
+
+Vamos al fondo de los problemas, buscamos las causas fundamentales, no opiniones. Analizamos los datos para encontrar soluciones efectivas a los problemas.
+
+![Untitled](Duppla%20Values%20-%20valores%2066056322e6e54e88931c84380a284d00/Untitled%202.png)
+
+# La mejor versión, en todo momento
+
+Trabajamos para construir la mejor Proptech de financiación de vivienda en Latinoamérica, donde cada uno de los miembros del equipo es su mejor versión.
+
+1. **Growth by Duppla:**
+
+Creemos en la mejora continua, en potenciar nuestras fortalezas y en trabajar en nuestras debilidades. La constancia, la disciplina y la adaptabilidad son las bases para nuestro desarrollo personal/profesional.
+
+![Untitled](Duppla%20Values%20-%20valores%2066056322e6e54e88931c84380a284d00/Untitled%203.png)
+
+1. **Have fun & Enjoy**
+
+ En Duppla creamos un ambiente de trabajo donde nos divirtamos, seamos creativos y auténticos, disfrutemos de cada momento trabajado y somos curiosos por buscar nuevas alternativas aún en los momentos difíciles. 
+
+1. **Make Magic** 
+
+Eso que sucede cuando alineamos nuestra pasión con trabajo duro. Cuando amamos y nos obsesionamos con lo que hacemos. 
+
+![Untitled](Duppla%20Values%20-%20valores%2066056322e6e54e88931c84380a284d00/Untitled%204.png)
+
+1. **Libertad con responsabilidad** 
+
+Estamos comprometidos con la misión, trabajamos de forma independiente y nos autogestionamos. Nos mueve el impacto de nuestro trabajo y los resultados.
+
+# Apostamos en Grande
+
+1. **Innovación audaz** 
+
+Creemos en el poder de la innovación, de reinventarse, el coraje de tomar riesgos y tomamos decisiones con criterio en situaciones de ambigüedad.
+
+1. **Simplificamos y lideramos** 
+
+Pensamos en la invención incremental a largo plazo, simplificamos y actuamos con mentalidad y actitud de dueño. 
+
+1. **Priorizamos Accion**
+
+Trabajamos desde la acción, con la capacidad de tomar decisiones difíciles, de manera oportuna y rápida. 
+
+1. **Eficiencia e impacto** 
+
+Nos alimentamos de la frugalidad, creemos en el poder de lograr mas con menos, en apalancarnos en la tecnología y el poder de escalar. 
+
+![Untitled](Duppla%20Values%20-%20valores%2066056322e6e54e88931c84380a284d00/Untitled%205.png)
+
+1. **No somos vitaminas**  
+
+Nuestro producto transforma vidas y la sociedad. No somos una mejora incremental en la vida de nuestros clientes, por el contrario, catalizamos el crecimiento y bienestar de sus familias.
+
+# Obsesionados por el cliente
+
+1. **¨ With great power comes great responsibility** ¨
+
+Cada cliente de duppla nos confía sus sueños y años de trabajo. Entendemos y asumimos esa responsabilidad, nuestro compromiso es con el cliente antes de intereses personales, del equipo o de la empresa
+
+![- Remember Peter - Uncle Ben](Duppla%20Values%20-%20valores%2066056322e6e54e88931c84380a284d00/Untitled%206.png)
+
+- Remember Peter - Uncle Ben
+
+1. **Servicio excepcional** 
+
+Hacemos la experiencia de compra de vivienda inolvidable para el cliente, resolvemos problemas e inquietudes rápidamente, somos francos y transparentes. Superamos las expectativas del cliente.
+
+1. **Soluciones personalizadas**
+
+Partimos de las necesidades de nuestros clientes y brindamos asesoramiento para una de las decisiones más importantes de sus vidas, y nos ganamos la confianza de nuestros clientes.
+
+1. **Customer driven growth**
+
+Son nuestros clientes y sus necesidades quienes dirigen nuestras acciones, no la competencia. 
+
+![Untitled](Duppla%20Values%20-%20valores%2066056322e6e54e88931c84380a284d00/Untitled%207.png)
+
+# Jugamos en equipo
+
+1. **All stars team**
+
+ Duppla busca stars, jugamos el uno por el otro, atraemos al mejor talento, y entrenamos para ser los mejores. 
+
+1. **Human connection**
+
+ Construimos juntos productos revolucionarios, nos apalancamos en relaciones personales y desarrollamos interés genuino por los otros.
+
+1. **Franqueza Auténtica**
+
+ Damos retroalimentación honesta, directa y oportuna, incluso si es incómodo o difícil. Entendemos las ventajas y asumimos el interés genuino de estas interacciones. Hypertolerance en ambas direcciones sin importar antigüedad o cargo.
+
+![Untitled](Duppla%20Values%20-%20valores%2066056322e6e54e88931c84380a284d00/Untitled%208.png)
+
+1. J**untos podemos más**
+
+ Actuamos y asumimos las buenas intenciones en nuestras interacciones, anteponemos las metas de duppla a las personales o del equipo. Nunca décimos ese no es mi trabajo y damos el 110%.
+
+![Untitled](Duppla%20Values%20-%20valores%2066056322e6e54e88931c84380a284d00/Untitled%209.png)
+
+# Archive
+
+## 2022 values 1.0
+
+**Obsesionados por la verdad** 
+
+Percepción vs realidad
+
+Challenge assumptions
+
+Best idea wins
+
+Be humble
+
+**Ser la mejor version - Be your best self**  
+
+Passion = Makes magic
+
+Be your self >>>> not be your self
+
+incluyentes
+
+diversidad
+
+Hyper tolerance required
+
+High EQ and self improvement
+
+Restrictions
+
+Unlawful
+
+Non scalable
+
+Negativity
+
+**Apostamos en grande - Big bold bets** 
+
+The future is happening faster - hard to predict trajectories
+
+Accurate intuition, at speed and surprising low risk
+
+Always be hustling 
+
+**Customer obsessed -** 
+
+product true value = wind on sales 
+
+everyone an ambassador
